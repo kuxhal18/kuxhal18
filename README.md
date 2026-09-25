@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Kushal Kumar
+# 👋 Hi, I'm Kushal Kumar M
 
 ### 🎓 Artificial Intelligence & Machine Learning Student
 
